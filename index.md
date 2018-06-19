@@ -16,7 +16,7 @@
 ### 所属しているダンスサークルの紹介をします😆
 * [37th"Dear"PV](https://www.youtube.com/watch?v=oiznTOXziBs)
 * [about us movie](https://www.youtube.com/watch?v=zDbPftH5VTY)
-*今、次回公演に向けてクラウドファウンディングを実施しています。是非ご協力をお願い致します！
+* 今、次回公演に向けてクラウドファウンディングを実施しています。是非ご協力をお願い致します！
 　[ADLクラウドファウンディング情報](https://readyfor.jp/projects/adl-38dance)
 
 ## Contact
