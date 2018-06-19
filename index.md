@@ -24,5 +24,4 @@
 
 ## Contact
 * [Facebook](https://www.facebook.com/aya.shibata.94)
-* [Twitter](https://twitter.com/)
 * [instagram](https://www.instagram.com/mameayaa/?hl=ja)
