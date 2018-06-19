@@ -8,4 +8,10 @@
 * [2018/05/14今週のおまめ](https://medium.com/furuhashilab/%E4%BB%8A%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-ee78612fff45)
 * [2018/05/22今週のおまめ](https://medium.com/furuhashilab/%E4%BB%8A%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-f73454af7caa)
 * [2018/05/31今週のおまめ](https://medium.com/furuhashilab/%E4%BB%8A%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-bc0a2aba206c)
-* [2018/06/10今週のおまめ](https://medium.com/furuhashilab/%E5%85%88%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-ad89873929de)
+* [2018/06/10先週のおまめ](https://medium.com/furuhashilab/%E5%85%88%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-ad89873929de)
+* [2018/06/10今週のおまめ](https://medium.com/furuhashilab/%E4%BB%8A%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-ad11387364c5)
+* [2018/06/19今週のおまめ](https://medium.com/furuhashilab/%E4%BB%8A%E9%80%B1%E3%81%AE%E3%81%8A%E3%81%BE%E3%82%81-4aa486c648ef)
+
+## Contact
+* [Facebook](https://www.facebook.com/aya.shibata.94)
+* [Twitter](https://twitter.com/)
