@@ -19,8 +19,10 @@
 * [37th"Dear"PV](https://www.youtube.com/watch?v=oiznTOXziBs)
 * [about us movie](https://www.youtube.com/watch?v=zDbPftH5VTY)
 * 今、次回公演に向けてクラウドファウンディングを実施しています。是非ご協力をお願い致します！[ADLクラウドファウンディング情報](https://readyfor.jp/projects/adl-38dance)
+* [contact](https://www.instagram.com/adl38th/?hl=ja)
 
 
 ## Contact
 * [Facebook](https://www.facebook.com/aya.shibata.94)
 * [Twitter](https://twitter.com/)
+* [instagram](https://www.instagram.com/mameayaa/?hl=ja)
